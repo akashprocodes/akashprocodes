@@ -3,7 +3,7 @@
 
 Email Me 👉 ✉️ **akakash0520@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** MCU Placement Prep
+- 🔭 **I’m currently working on:** Placement Prep start-up
 - 🌱 **I’m currently learning:** Data Engineering
 - 😄 **Pronouns:** Tanmay Sir
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
